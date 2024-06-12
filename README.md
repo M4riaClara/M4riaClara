@@ -1,16 +1,14 @@
-## Hi there 👋
+## Boas vindas ao meu perfil 🖤
 
-<!--
-**M4riaClara/M4riaClara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é Maria
 
-Here are some ideas to get you started:
+- leio - medito - jogo
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+##você pode entrar em contato comigo📭
+
+mariferrer316@gmail.com
+
+![](https://media1.tenor.com/m/IEm8gmpWPi4AAAAC/angry-seccato.gif)
+
