@@ -7,7 +7,7 @@ meu nome é Maria
 
 
 ##você pode entrar em contato comigo📭
-
+de preferência não entre
 mariferrer316@gmail.com
 
 ![](https://media1.tenor.com/m/IEm8gmpWPi4AAAAC/angry-seccato.gif)
